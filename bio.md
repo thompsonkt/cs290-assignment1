@@ -1,4 +1,4 @@
-My name is Kevin and I live and work in the Seattle area.
+My name is Kevin and I live and work in the Seattle area. I'm currently seeking a CS degree at OSU, but am considering switching to the masters program at UW once I have completed the core classes as OSU.
 
 Hobbies and interests: 
 In my spare time, I enjoy activities like golf in the summer and skiing/snowboarding in the winter time. I also enjoy travel. To relax, I'll watch a movie or catch up on a favorite TV show like Walking Dead or something on Netflix.
